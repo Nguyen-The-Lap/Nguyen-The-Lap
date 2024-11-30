@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I'm Lap abcđ
+I'm Lap
